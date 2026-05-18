@@ -4,3 +4,4 @@
 
 - 🔭 I'm currently working on ... [如何给我的老车改装智能化方案](https://github.com/lumigj/CarDash)
 
+<img src="https://github.com/lumigj/lumigj/blob/main/IMG_5823.jpg" alt="img" width="50%">
