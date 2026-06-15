@@ -1,4 +1,4 @@
-## Hi there, I'm Lumi 🐱
+## Hi there, I'm Lumi 🐱 当社畜了喵，上班去了喵，停更了喵 T^T
 
 **中学生jk 工程师猫娘 软饭猫猫（x**
 
