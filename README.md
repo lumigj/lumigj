@@ -1,4 +1,4 @@
-## Hi there, I'm Lumi 🐱 ~~当社畜了喵，上班去了喵，停更了喵 T^T~~ 裸辞了喵！回来接着玩车了喵！
+## Hi there, I'm Lumi 🐱 ~~当社畜了喵，上班去了喵，停更了喵 T^T~~ 裸辞了喵！回来接着玩车了喵！ ~~又光速入职了喵 T^T~~
 
 **中学生jk 工程师猫娘 软饭猫猫（x**
 
@@ -10,4 +10,4 @@
 
 **友情链接**
 
-<img src="https://github.com/lumigj/lumigj/blob/main/o3OhBxWk_400x400.jpg" alt="img" width="25px"> 温柔猫猫 [Lee](https://leetfs.com/)
+<img src="https://github.com/lumigj/lumigj/blob/main/o3OhBxWk_400x400.jpg" alt="img" width="25px"> 温柔猫娘女仆！-> [Lee](https://leetfs.com/)
